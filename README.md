@@ -1,1 +1,4 @@
 # DOSW_ParcialT2_JuanCristancho
+
+## JUAN CAMILO CRISTANCHO VELASQUEZ
+## GRUPO 2
